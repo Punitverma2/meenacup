@@ -1,1 +1,0 @@
-# meenacup
